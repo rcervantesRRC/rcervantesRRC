@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on Class Assignments
-- 📫 How to reach me rcervantes@rrc.ca
+- 📫 How to reach me gerjos@shaw.ca
 - 😄 Pronouns: He, Him
 - ⚡ Fun fact: Flying
 
